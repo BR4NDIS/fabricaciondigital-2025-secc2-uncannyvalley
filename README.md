@@ -1,0 +1,1 @@
+# fabricaciondigital-2025-secc2-uncannyvalley
